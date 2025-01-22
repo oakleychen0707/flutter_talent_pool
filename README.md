@@ -9,3 +9,8 @@
 
 https://github.com/oakleychen0707/talent_pool/assets/98889131/03030b6e-ada3-4212-9c46-1a9b7c44de64
 
+---
+
+## Conclusion
+
+Hope this helps you! 😊
